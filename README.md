@@ -1,0 +1,1 @@
+--Hello future PSX Rich guys!
